@@ -6,6 +6,12 @@
 
 - *THE* physical, spiritual, and pyschological Romeo fictionkin. No, I didnt choose this identity im just literally him.
 
-- Always IWC. 
+- Always IWC.
+
+- Genderfluid , prns vary
+
+- yumeshipper
+
+- therian
 
 - me , L/T/X , M , N >>> You.
