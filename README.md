@@ -1,19 +1,25 @@
 ## YOUR FUTURE FAVORITE .
 
-- You've reached Romeos official profile! I am the one and only, so if you kin me then never talk to me. (cause youre trying too hard to be me)
+Hello!
 
-- I have NPD, DID, AUTISM, AND ADHD
+- Call us Romeo or Dream! You can even switch between the two. 
 
-- *THE* physical, spiritual, and pyschological Romeo + C!Dream fictionkin. No, I didnt choose this identity im just literally him.
+- Collective pronouns are : HE . HYMN . THEY . CLAW . NARC . IT . ASK
 
-- Always IWC. Sometimes I have touch discomfort, please respect my boundaries if I have DNT in my name. I am not obligated to share why I get uncomfy with touch at times.
+- We are genderfluid (mostly male,though) , Poly , and omnisexual. Sometimes this isnt the case for other alters however.
 
-- However if c+h is in my name, feel free to cuddle up w/ me. I dont bite.
+- We are a fictionkin of over 100 characters, our top fictionkins being Romeo (MCSM) and C!Dream (DSMP) . We are very strict about doubles no matter what it is . 
+**Do not joke about being literally Romeo or Dream , be careful using profile pictures / names of either of those characters around us , do not GENUINELY talk about them negatively , and if you kin either of those characters then do not discuss it when I am around. (I know yall probs dont, but thats just so you know! dw.)**
+We do not believe doubles of Romeo/Dream exist, and truly think they are just pretending to be us. So we take our kins very seriously as we identify as those 2 characters on every level including physical 
 
-- Genderfluid , prns vary
+- We are also a therian, conceptkin, gamekin, and plantkin. We actually kin the game MCSM as a whole! Interesting, right?
 
-- yumeshipper
+- We yumeship/selfship and do not mind doubles usually. Its not something we talk about often
 
-- therian
+- Interests: MCSM, DSMP, Forsaken, Dandys World, FNAF, alterhumanity, psychology, space, Flamingo, DenisDaily
 
-- me , L/T/X , M , N >>> You.
+- **We are diagnosed with Autism, ADHD, and MDD.**
+
+- **We are medically recognized with Narcissistic Personality Disorder ,, Dissociative Identity Disorder (OSDD-1B In specific) ,, and C-PTSD .**
+
+Thank you for reading.
